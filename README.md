@@ -4,7 +4,7 @@ Content Of Project :
 1 Free And Preimum Course
 2 One To One Doubt Solving
 3 Both Live And Recorded Lecture
-4 Chat With Mentor During Live Lecture
+4 Chat With Teacher During Live Lecture
 5 Feedback of Teacher 
 
 
